@@ -77,7 +77,7 @@ Claude 相较于 ChatGPT 在以下方面表现更优：
 如果您想升级到 **Claude Pro**，需要绑定海外信用卡进行支付。这里推荐使用 **WildCard 虚拟信用卡**，操作简单、安全高效。
 
 点击查看 ☞ [WildCard | 一分钟注册，轻松订阅海外线上服务](https://yeka.ai/i/VTRKETKQ)  
-使用邀请码：**ACCPAY**，立享减免开卡费用。
+使用邀请码：**VTRKETKQ**，立享减免开卡费用。
 
 ---
 
